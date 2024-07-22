@@ -1,6 +1,6 @@
 ### Hi there I'm Aania Shah
 
-linkedin: www.linkedin.com/in/aaniaraheem44a1b71ba
+linkedin: www.linkedin.com/in/aaniaraheem4121
 email: a4raheem@uwaterloo.ca
 
 <!--
